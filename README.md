@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @joukecooper
+- 👀 I’m interested in saaf
+- 🌱 I’m currently learning to make saaf
+- 📫 How to reach me: pay me saaf
